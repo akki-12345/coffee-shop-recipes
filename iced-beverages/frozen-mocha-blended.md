@@ -24,3 +24,23 @@
 ### Step 3
 
 - Pour blended mixture into 16-oz glass.
+
+### Step 4
+
+- Add sugar
+
+### Step 5
+
+- Add salt
+
+### Step 6
+
+- Add masala
+
+### Step 7
+
+- Add blackpaper
+
+### Step 8
+
+- Add chilly
