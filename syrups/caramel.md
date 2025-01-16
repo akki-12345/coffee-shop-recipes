@@ -6,7 +6,7 @@
 
 - 1 cup sugar
 - 1/4 cup water
-- 1/2 cup of hot water
+- 1/2 cup of hot milk
 - 1 tsp vanilla extract
 
 ## How to Make
